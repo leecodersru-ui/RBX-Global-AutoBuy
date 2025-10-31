@@ -1,4 +1,4 @@
--------------------------------
+
 RU
 🔸 Hachapuri для RBX Global🔸
 ⛳️ прайс:
@@ -7,7 +7,7 @@ RU
 🎈60 дней - 2250 рублей.
 🎈Лайфтайм - 5550 рублей.
 https://t.me/+0KZAgC541dwzOTYy
---------------------------------
+
 ENG
 🔸 Hachapuri for RBX Global🔸
 ⛳️ Price:
